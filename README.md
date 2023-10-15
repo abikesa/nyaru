@@ -8,28 +8,26 @@ This article seeks to examine the issues raised in the said proposal.
 Team Gashumba presents TWO ISSUES. And I will examine them within Two perspectives - The African Context & The Global Perspective:
 
 The Main Issues Raised:
-i) Many Banyarwanda of Uganda, are frustrated. Almost at every turn, they suffer much discrimination, and are treated as not being fully Ugandan; they often have to explain themselves as to why, if they are Banyarwanda, they do not want to go 'back home' - to Rwanda!
-Consequently, many complain of being denied Uganda Passports, jobs, promotions and other services and opportunities ordinarily available to other citizens.
-==========
-As I will argue,
-FEW BANYARWANDA WOULD DISAGREE WITH THE COMPLAINT.
-==========
 
-ii) In view of the above, Team Gashumba proposes that Banyarwanda of Uganda be Re-named 'Abavandimwe', to avoid being mistaken for Banyarwanda of Rwanda (Rwandans).
-==========
-While most will agree with the problem so identified:
-FEW BANYARWANDA WOULD AGREE WITH THE PROPOSAL.. - to change their identity..!
-==========
+1. Many Banyarwanda of Uganda, are frustrated. Almost at every turn, they suffer much discrimination, and are treated as not being fully Ugandan; they often have to explain themselves as to why, if they are Banyarwanda, they do not want to go 'back home' - to Rwanda!
+Consequently, many complain of being denied Uganda Passports, jobs, promotions and other services and opportunities ordinarily available to other citizens.
+
+> As I will argue, FEW BANYARWANDA WOULD DISAGREE WITH THE COMPLAINT.
+
+
+2. In view of the above, Team Gashumba proposes that Banyarwanda of Uganda be Re-named 'Abavandimwe', to avoid being mistaken for Banyarwanda of Rwanda (Rwandans).
+   
+> While most will agree with the problem so identified: FEW BANYARWANDA WOULD AGREE WITH THE PROPOSAL.. - to change their identity..!
 
 I will also introduce two perspectives:
-iii) The AFRICAN CONTEXT - The Legacy of Colonial Boundaries:
 
-iv) The GLOBAL PERSPECTIVE On Ethnic Rivalry & Conflict - Are We Alone..?
-===================
+3.  The AFRICAN CONTEXT - The Legacy of Colonial Boundaries:
 
-TEAM GASHUMBA CONCERNS:
+4. The GLOBAL PERSPECTIVE On Ethnic Rivalry & Conflict - Are We Alone..?
 
-i) Are there Native Banyarwanda citizens of Uganda?
+## TEAM GASHUMBA CONCERNS:
+
+1. Are there Native Banyarwanda citizens of Uganda?
 
 Refer to Population Census records in Uganda, starting in 1911; then 1921, 1931; 1948, then 1959 - before the influx of Refugees fro Rwanda, and 1969.
 In all these Population Counts, Banyarwanda consistently turned out between 6% and 7% of the population, making it 6th or 7th largest ethnic group in Uganda, most of them in Buganda, Kigezi and Ankole.
@@ -41,7 +39,7 @@ In 1894, the British procured the first consent for 'British Protection' from Bu
 
 The very first Constitution - The 1962 (Lancaster negotiated) Independence Constitution of Uganda established the 'Persons to become citizens of Uganda, on 9th October 1962.
 It covers most Banyarwanda in Uganda.
-============
+
 
 1962: UGANDA INDEPENDENCE CONSTITUTION:
 
@@ -69,8 +67,8 @@ He was also one of the Local Officials who accompanied the Enganzi (Primier) of 
 
 Notwithstanding the obvious explanations, however, reports and complaints abound, of harassment and discrimination that Banyarwanda in Uganda continue to suffer, especially when they need to access public services. It is wrong, to regularly require greater proof of citizenship, for instance, from members of one particular ethnic community than is asked of others.
 
-ii) SHOULD BANYARWANDA of UGANDA CHANGE NAME?
-.
+2. SHOULD BANYARWANDA of UGANDA CHANGE NAME?
+
 As has been stated elsewhere by many Banyarwanda, the suggestion is not only uninformed, it is unreasonable and ridiculous:
 - It is uninformed, because most of the offenders do it out of malice; It would only be fair to expect them still to continue in their 'ill will' machinations against the Banyarwanda community, no matter the name.
 Many still recall the 'Ethnic Cleansing' of 1982, in which more than 100,000 Banyarwanda were expelled by the UPC Government and UPC functionaries, especially from 'Greater Ankole..!' Citizens were forced into Refugee Camps in Uganda, while others were driven across the border into Rwanda - only to die in thousands, in poorly managed refugee camps.
@@ -100,7 +98,7 @@ TUR' ABANYARWANDA;
 TUR' ABAVANDIMWE;
 TUR' IMFURA Z'ABADAHEMUKA..!!
 
-iii) THE AFRICA CONTEXT - The Legacy of Arbitrary Colonial Boundaries:
+3. THE AFRICA CONTEXT - The Legacy of Arbitrary Colonial Boundaries:
 On all borders of Uganda, as oft the case for most African countries, one finds communities that were separated by The Arbitrary 'Pen of The 1884/85 Berlin Conference', wherein the European Powers greedily partitioned and distributed the African lands among themselves - like hyenas on the weakened buffalo..!
 Already, Communities were also often found straddled across recognised frontiers of pre-colonial kingdoms. People would move to flee conflict or in search of food and pasture.
 
@@ -138,7 +136,7 @@ Still on south western border of Uganda, is RWANDA, with whom Uganda has had muc
 Former Rwanda President HABYARIMANA, for example, was a MUKIGA from Gisenyi, North-western Rwanda, bordering Kigezi.
 To the North-East of Rwanda, is the Umutara province, where native Runyankore speaking cattle keeping (Bahima) of the Bagina, Bashambo and other clans were settled. Some of them - Kataraiha and Kisiribombo - were appointed by the Rwanda King as Superior Chiefs. Most of these Bahima communities remained in Rwanda until the 1990/ '94 war.
 
-iv) THE GLOBAL PERSPECTIVE ON ETHNIC RIVALRY And CONFLICT:
+4. THE GLOBAL PERSPECTIVE ON ETHNIC RIVALRY And CONFLICT:
 From the end of WWII in 1945 to the 'Fall of The Berlin Wall' in 1989, Global Conflict was mostly driven by 'The Cold War' between The USA and USSR.
 But now all over the world, especially in the last 30 years, the world is at war with itself - Conflict mostly driven by Nationalist Extremism. Ethnic conflict has been cause of much suffering, war & destruction.
 
@@ -155,7 +153,9 @@ In the United Staes of America, 'Black Lives Matter' is the Battle cry for Afric
 
 Personally, I think one of the most backward element included in our Constitution was the promotion of Ethnic loyalties - requiring even the most patriotic Ugandan to first identify with some tribal grouping..!!
 A most unfortunate inclusion..!
-=======================
+
+
+---
 
 ADDED:
 Excerpts From Counsel EDGAR TABARO, son of Retired Justice Tabaro:
